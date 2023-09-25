@@ -1,5 +1,4 @@
-## Hi there 👋
-
+![img](https://github.com/bidarcyberarmy/.github/blob/main/profile/Bina%20darma%20cuber%20army.png)
 <!--
 
 **Here are some ideas to get you started:**
